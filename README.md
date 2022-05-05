@@ -9,7 +9,7 @@
 
 - 👯 I’m looking to collaborate on **Legal Tech Projects**
 
-- ⚡ Fun fact **I am an Artist with a Legal Educated Mind.**
+- ⚡ Fun fact **I am a Legal Educated Artist.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
